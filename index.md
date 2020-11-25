@@ -1,4 +1,4 @@
-## Welcome to __**Giraffe World**__!
+## Welcome to Giraffe World!
 
 You can use the [editor on GitHub](https://github.com/Jennylululu/GiraffeWorld/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
