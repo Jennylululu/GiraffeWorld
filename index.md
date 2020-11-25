@@ -1,5 +1,3 @@
 ## Welcome to Giraffe World!
 
-```diff
-red
-```
+<span font="color:orange">I want an orange 🦒.</span>
