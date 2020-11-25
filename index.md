@@ -6,4 +6,8 @@
 
 ![Giraffes archway](https://anettemossbacher.com/wp-content/media/two-giraffes-archway-zebra-843x562.jpg)
 
-![Jennylululu with giraffe](PXL_20201125_003537182.PORTRAIT.jpg)
+>  Giraffes are very social animals and roam around in groups. These groups, called towers, typically have around 15 members led by an adult male. The other members are females and young males.
+
+> To see who is stronger, males (called bulls) fight by butting their long necks and heads. This is known as “necking“. These fights aren’t usually dangerous, and end when one bull admits defeat and walks away.
+
+[Source](https://www.natgeokids.com/uk/discover/animals/general-animals/ten-giraffe-facts/)
