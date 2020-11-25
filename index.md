@@ -5,3 +5,5 @@
 ![Giraffe in sunset](https://images.indianexpress.com/2019/06/giraffe.jpg)
 
 ![Giraffes archway](https://anettemossbacher.com/wp-content/media/two-giraffes-archway-zebra-843x562.jpg)
+
+![Jennylululu with giraffe](PXL_20201125_003537182.PORTRAIT.jpg)
