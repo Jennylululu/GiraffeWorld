@@ -1,3 +1,7 @@
 ## <span style="color:orange">Welcome to Giraffe World! 🦒😀</span>
  
 ![Giraffe with big nose](https://www.sheldrickwildlifetrust.org/assets/representations/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaHBBdnZEIiwiZXhwIjpudWxsLCJwdXIiOiJibG9iX2lkIn19--f016aa1bd142e6535022447f66bf14f990396ab1/eyJfcmFpbHMiOnsibWVzc2FnZSI6IkJBaDdCem9LYzJGMlpYSjdDam9LYzNSeWFYQlVPaEZ1YjE5emRXSnpZVzF3YkdWVU9nNXBiblJsY214aFkyVlVPaFJ2Y0hScGJXbDZaVjlqYjJScGJtZFVPZ3h4ZFdGc2FYUjVhVVk2RkhKbGMybDZaVjkwYjE5c2FXMXBkRnNIYVFJZUEya0M2Z0U9IiwiZXhwIjpudWxsLCJwdXIiOiJ2YXJpYXRpb24ifX0=--1b88d1f9e66e38a191853ddeb966ae04cbe8a0e0/giraffe_4.jpg)
+
+![Giraffe in sunset](https://images.indianexpress.com/2019/06/giraffe.jpg)
+
+![Giraffes archway](https://anettemossbacher.com/wp-content/media/two-giraffes-archway-zebra-843x562.jpg)
