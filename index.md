@@ -14,4 +14,6 @@
 
 > In the wild these beautiful creatures live for around 25 years. In captivity they live longer, and have been known to reach 40 years old.
 
+> A giraffe’s height is helpful for keeping a look out for predators, such as lions and hyenas. Their excellent eyesight allows them to spot hungry beasts from far away, too.
+
 [Source](https://www.natgeokids.com/uk/discover/animals/general-animals/ten-giraffe-facts/)
