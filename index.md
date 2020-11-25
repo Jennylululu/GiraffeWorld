@@ -10,4 +10,8 @@
 
 > To see who is stronger, males (called bulls) fight by butting their long necks and heads. This is known as “necking“. These fights aren’t usually dangerous, and end when one bull admits defeat and walks away.
 
+> Female giraffes give birth standing up. The result? Newborns are welcomed to the world with a 1.5m drop to the ground! Ouch! But these infants are quick to get on their feet – within 30 minutes they are standing, and only hours later they”re able to run with their mothers.
+
+> In the wild these beautiful creatures live for around 25 years. In captivity they live longer, and have been known to reach 40 years old.
+
 [Source](https://www.natgeokids.com/uk/discover/animals/general-animals/ten-giraffe-facts/)
