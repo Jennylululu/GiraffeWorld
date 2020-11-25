@@ -1,3 +1,3 @@
 ## Welcome to Giraffe World!
 
-<span font="color:orange">I want an orange 🦒.</span>
+<span style="color:orange">I want an orange 🦒.</span>
